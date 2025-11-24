@@ -10,6 +10,8 @@
 
 <br>> . *You're willingly friends with the following (Knowing they support pros, etc..); Tweeksik, Cchan, Kilo_Kyle. (Lmk if i missed anyone)*
 
+<br>> . ***QUINN*** ->> ![](https://files.catbox.moe/7ffq57.png)
+
   <br> ![](https://ik.imagekit.io/kwgdz04zh/Untitled179_20251115052533.png?updatedAt=1763202795422)
 
    <br>***INTERACT/FANDOMS***
